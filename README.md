@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheDeww555
+- 👋 Hi, I’m @ChristopherKemsley @TheDeww555
 - 👀 I’m interested in computers and video games.
 - 🌱 I’m currently learning Computer Information Systems and IT
 - 💞️ I’m looking to collaborate on video game project
